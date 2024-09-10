@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Naiyar652
-- 👀 I’m interested in ...
+- 👀 I’m interested in learning github.
 - 🌱 I’m currently learning github with my freinds.
-- 💞️ I’m looking to collaborate on my project with some experties.
+- 💞️ I’m looking to dive in to the world of IT.
 - 📫 How to reach me ..... my github account is Naiyar652 and my whatsapp number is +916206990799
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
